@@ -1,4 +1,4 @@
-
+king legacy Script top is the best king legacy Script, featuring aimbot and auto-sell. Safe and powerful for all your needs.
 
 
 
